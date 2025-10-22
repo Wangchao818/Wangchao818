@@ -1,1 +1,1 @@
-![wfc](wfc.jpg)
+![wfc]
